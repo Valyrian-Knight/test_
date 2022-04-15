@@ -1,1 +1,1 @@
-# Nesto novo, nesto divlje!!!
+## Nabijem te na kurac! :-)
