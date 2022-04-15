@@ -1,5 +1,3 @@
 # Hello baby
 
-Hi there
-Ho ho
-Ho Ho Ho
+# U jebem ti, ovo nije sala!
